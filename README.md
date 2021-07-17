@@ -5,3 +5,7 @@
 > I'm yanhaijing.  
 
 🔗 https://yanhaijing.com
+
+🔗 https://www.zhihu.com/people/yanhaijing
+
+
