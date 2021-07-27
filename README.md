@@ -4,6 +4,6 @@
 
 > I'm yanhaijing, about me👇
 
-🔗 https://yanhaijing.com
+🔗 [https://yanhaijing.com](https://yanhaijing.com/yan_about/)
 
 👀 https://www.zhihu.com/people/yanhaijing
