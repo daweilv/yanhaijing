@@ -2,8 +2,8 @@
 
 #### Hello 👏
 
-> I'm yanhaijing.  
+> I'm yanhaijing, about me👇
 
 🔗 https://yanhaijing.com
 
-📎 https://www.zhihu.com/people/yanhaijing
+👀 https://www.zhihu.com/people/yanhaijing
